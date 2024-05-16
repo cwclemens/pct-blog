@@ -1,7 +1,7 @@
 ---
 title: 'Welcome'
 date: 2024-05-16T07:19:59-07:00
-draft: true
+draft: false
 ---
 
 Welcome to my PCT blog! I'll be uploading posts here every week or so to give
