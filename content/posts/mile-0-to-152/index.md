@@ -180,9 +180,24 @@ uncomfortable.
   for a meal, shower, and camped at their place
 -->
 
-## Day 3 5/19
+## Day 3, 5/19
 
+After eating some breakfast, I left the Yellow Deli house around 9am and got back on trail, and
+immediately ran into John and Elisa. We gossiped about the Yellow Deli for a bit before heading
+out.
 
+The day started off really strong, with by far the best views on trail so far. The climb up to
+Kawaami Point wasn't too bad, and there were lots of interesting memorials near the top.
+
+For maybe half the day, the trail was covered in caterpillars, almost to a ridiculous extent. I
+must have shown up just at the right time for their spawning season. It was pretty difficult
+hiking while trying to avoid stepping on them, and there were lots of dead caterpillars in the
+water source too. Luckily I didn't notice any obvious flavors.
+
+Sun exposure is beginning to be a problem. My sun hoody covers up most of my upper body, but I
+still insist on wearing shorts. I'll just have to be very meticulous about applying sunscreen.
+My lips are starting to get pretty badly chapped. I'll have to look out for some chapstick in
+town. At least the heat is less of a problem, since there's more wind at altitude.
 
 <!--
  - Mt Laguna to camp at water tank before Julian
